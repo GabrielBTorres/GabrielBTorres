@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩‍💻 Studying to become a DevOps Engineer<br>👨‍🎓 Always looking for Knowledge <br><br><br>
+<br>👨‍🎓 Always looking for Knowledge <br><br><br>
 
 
 ## 🌐 Socials:
